@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @conie-dev
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...myself
+- 🌱 I’m currently learning ...nothing from my past failiures<3
+- 💞️ I’m looking to collaborate on ...doomsday machine lol
 - 📫 How to reach me ... woods 
 - 😄 Pronouns: ...she/they
 - ⚡ Fun fact: ...you can run but you wont get far :3
